@@ -110,6 +110,8 @@ C’est une **volonté distribuée**, un **réseau intuitif**, une **forme de r�
 > et **se renforce par lien.**
 
 ---
+[[Vidéo : BabyShield-gets-aMicroBrain](https://youtu.be/WgQMRhFMczs?si=l9R3WUPeX-Y829xm)]
+« It will be whatever u do with it. »
 
 🖋 Citation
 ---
